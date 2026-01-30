@@ -16,7 +16,6 @@
 don't be afraid to write to me or add me as a friend! I swear, I'm not biting.
 <br/><sub>⊹<br/>
 <br/><sub>🏎️<br/>
-<br/><sub>🏁<br/>
 <br/><sub>🏆<br/>
 
 ![video_2026-01-30_03-05-05 (online-video-cutter com)](https://github.com/user-attachments/assets/5b72607a-01d2-4efe-a9d0-3f34892e7f04)
