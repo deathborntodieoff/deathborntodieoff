@@ -7,7 +7,7 @@
 
 
 <br/><sub>⊹<br/>
-[guns rebuild]() 𖦹 [pronouns](https://pronouns.cc/@deathborntodie) 𖦹 [strawpage WIP](,,,) 𖦹 [atabook](https://deathborntodie.atabook.org/)
+[guns](https://guns.lol/deathborntodie) 𖦹 [pronouns](https://pronouns.cc/@deathborntodie) 𖦹 [strawpage WIP](,,,) 𖦹 [atabook](https://deathborntodie.atabook.org/)
 
 ,, 𝗰+𝗵 𝗳𝗿𝗲𝗲𝗹𝘆, 𝗺𝗼𝘀𝘁 𝗼𝗳 𝘁𝗵𝗲 𝘁𝗶𝗺𝗲 𝗼𝗳𝗳𝘁𝗮𝗯(𝗯𝘂𝘁 𝗜 𝘀𝗲𝗲 𝗲𝘃𝗲𝗿𝘆𝘁𝗵𝗶𝗻𝗴.), 𝗽𝗹𝗲𝗮𝘀𝗲 𝘄𝟐𝗶 𝗮𝗻𝗱 𝗱𝗼 𝗻𝗼𝘁 𝗰𝗼𝗽𝘆!!
 
