@@ -1,23 +1,3 @@
 <div align="center">
 
-
-![](https://komarev.com/ghpvc/?username=deathborntodieoff&color=42cdff&label=listeners&style=plastic&base=1000)
-
-![tumblr_cdd21b2827e83e9494f7bc659c4afb40_d1b4eaf9_500](https://github.com/user-attachments/assets/17ff6cf7-c111-4654-a354-169c2b53ae1c)
-
-
-<br/><sub>⊹<br/>
-[guns](https://guns.lol/deathborntodie) 𖦹 [pronouns](https://pronouns.cc/@deathborntodie) 𖦹 [strawpage WIP](,,,) 𖦹 [atabook](https://deathborntodie.atabook.org/)
-
-,, 𝗰+𝗵 𝗳𝗿𝗲𝗲𝗹𝘆, 𝗺𝗼𝘀𝘁 𝗼𝗳 𝘁𝗵𝗲 𝘁𝗶𝗺𝗲 𝗼𝗳𝗳𝘁𝗮𝗯(𝗯𝘂𝘁 𝗜 𝘀𝗲𝗲 𝗲𝘃𝗲𝗿𝘆𝘁𝗵𝗶𝗻𝗴.), 𝗽𝗹𝗲𝗮𝘀𝗲 𝘄𝟐𝗶 𝗮𝗻𝗱 𝗱𝗼 𝗻𝗼𝘁 𝗰𝗼𝗽𝘆!!
-
-𝗜 𝗱𝗼𝗻'𝘁 𝗵𝗮𝘃𝗲 𝗮 𝗗𝗡𝗜. 𝗜 𝗲𝗶𝘁𝗵𝗲𝗿 𝗶𝗴𝗻𝗼𝗿𝗲 𝗼𝗿 𝗯𝗹𝗼𝗰𝗸 𝗽𝗽𝗹 𝗜𝗳 𝗜'𝗺 𝘂𝗻𝗰𝗼𝗺𝗳𝗼𝗿𝘁𝗮𝗯𝗹𝗲  ༊*·˚
-
-don't be afraid to write to me or add me as a friend! I swear, I'm not biting.
-<br/><sub>⊹<br/>
-<br/><sub>🏎️<br/>
-<br/><sub>🏆<br/>
-
-![video_2026-01-30_03-05-05 (online-video-cutter com)](https://github.com/user-attachments/assets/5b72607a-01d2-4efe-a9d0-3f34892e7f04)
-<br/><sub>𝘌𝘷𝘦𝘳𝘺 𝘮𝘰𝘷𝘦 𝘺𝘰𝘶 𝘮𝘢𝘬𝘦. 𝘌𝘷𝘦𝘳𝘺 𝘣𝘰𝘯𝘥 𝘺𝘰𝘶 𝘣𝘳𝘦𝘢𝘬. 𝘌𝘷𝘦𝘳𝘺 𝘴𝘵𝘦𝘱 𝘺𝘰𝘶 𝘵𝘢𝘬𝘦,<br/>
-𝑰'𝒍𝒍 𝒃𝒆 𝒘𝒂𝒕𝒄𝒉𝒊𝒏𝒈 𝒚𝒐𝒖.
+<br/><sub>⊹ALL SOCIALS IS WIP RN! TRY AGAIN LATER⊹<br/>
