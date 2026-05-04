@@ -21,4 +21,6 @@ don't be afraid to write to me or add me as a friend! I swear, I'm not biting.
 
 <sub>🏆
 
+<img width="736" height="325" alt="90f5ac49fc53fff3f486e037a25db1cf" src="https://github.com/user-attachments/assets/e705ecad-c6dc-4ac0-8849-c45c148f5aac" />
+
 <img src="https://readme-typing-svg.herokuapp.com/?font=IBM+Plex+Mono&size=18&duration=3500&color=0057fa&center=true&vCenter=true&width=600&lines=I+know+what+I+am,;and+what+I+have+to+do+in+my+profession,;so+I+can+handle+the+pressure." />
